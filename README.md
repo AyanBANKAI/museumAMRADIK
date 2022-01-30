@@ -1,1 +1,1 @@
-# museumAMRADIK
+https://ayanbankai.github.io/museumAMRADIK/
